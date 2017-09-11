@@ -23,3 +23,5 @@ Mande um abraço para ele nas redes sociais.
 
 ## Pupilos do Mentor da Antonio Ladeia
 
+* [Leonardo Monteiro](Aguardando o profile)
+
